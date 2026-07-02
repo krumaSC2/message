@@ -1,9 +1,0 @@
-# message
-instead of making.. message.. so stupid. instead. i have put this. as 1 big message. 
-there will be more messages.........................................
-i have set up 3 different repositories and they are all different messages.....
-these are all compilations of messages..........
-..........lol..........-K
-
-(very silly, not even half is done)
-i put one peiece of furry porn in here its a roulette you gotta find it
